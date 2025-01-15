@@ -16,4 +16,6 @@
 
 # OUTPUT OF THE TASK
 
-
+![Capture 3](https://github.com/user-attachments/assets/53aad883-ff31-4268-999b-7611b830d0ec)
+![Capture 5](https://github.com/user-attachments/assets/4628cf2f-a79b-42b1-99df-f10be379d587)
+![Capture 6](https://github.com/user-attachments/assets/f7df583e-ce6c-4b2b-9d25-cdb4b36fbefe)
